@@ -28,7 +28,7 @@ We may update this Privacy Policy as needed. Any changes will be reflected in th
 
 ## Contact
 If you have questions about this Privacy Policy, please contact:
-[Your Contact Email]
+akawxie@gmail.com
 
 ## Children's Privacy
 DayTrek does not knowingly collect any personal information from children under 13.
